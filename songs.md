@@ -22,3 +22,6 @@ https://www.youtube.com/watch?v=GLbSjAioAjE
 
 Linkin Park | In the end (cover)  
 https://www.youtube.com/watch?v=WNeLUngb-Xg
+
+Linkin Park | One more light (cover)  
+https://www.youtube.com/watch?v=NrxHYQAGaE8
