@@ -26,5 +26,5 @@ https://www.youtube.com/watch?v=WNeLUngb-Xg
 Linkin Park | One more light (cover)  
 https://www.youtube.com/watch?v=NrxHYQAGaE8
 
-Hans Zimmer | Gladiator (cover)    
+Hans Zimmer | Gladiator  
 https://www.youtube.com/watch?v=c36PUlqpOdY
