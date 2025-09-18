@@ -55,3 +55,15 @@ https://www.youtube.com/watch?v=143f_BiZY-g
 
 Ramin Djawadi | The Iron Throne  
 https://www.youtube.com/watch?v=GLxS_ceDGsc
+
+Shostakovich | Symphony 5 | Leonard Bernstein and the New York Philharmonic Orchestra  
+https://www.youtube.com/watch?v=0FF4HyB77hQ
+
+I'd like to add some notes about Shostakovich's 5th symphony:
+- I really discovered this symphony in 2024 or 2025
+- I enjoy every movement and I often skip to movement 3 or movement 4, because I'm such a big fan of movements 3 and 4
+- Movement number 3 has a really interesting mood
+- Movement number 4 has a really interesting mood as well... it's very different from the third movement
+- Movement number 4 has some climaxes that I really like
+- I used to listen to Shostakovich's 5th symphony before work, at like 8am or 8:30am, to get ready for the day
+- I've been a big fan of Shostakovich since the age of 24 or 25
