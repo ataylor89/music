@@ -52,3 +52,6 @@ https://www.youtube.com/watch?v=ieFGwtEa9Qo
 
 Ramin Djawadi | Breaker of chains    
 https://www.youtube.com/watch?v=143f_BiZY-g
+
+Ramin Djawadi | The Iron Throne  
+https://www.youtube.com/watch?v=GLxS_ceDGsc
