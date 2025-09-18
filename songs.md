@@ -46,3 +46,6 @@ https://www.youtube.com/watch?v=8a6J50DVuLM
 
 Hans Zimmer | Time  
 https://www.youtube.com/watch?v=va1oiojnGrA
+
+Hans Zimmer | Interstellar | Performed by an orchestra  
+https://www.youtube.com/watch?v=ieFGwtEa9Qo
