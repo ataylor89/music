@@ -67,3 +67,15 @@ I'd like to add some notes about Shostakovich's 5th symphony:
 - Movement number 4 has some climaxes that I really like
 - I used to listen to Shostakovich's 5th symphony before work, at like 8am or 8:30am, to get ready for the day
 - I've been a big fan of Shostakovich since the age of 24 or 25
+
+Bach | Toccata and Fugue in D minor  
+I often listen to versions on Apple Music, like the one by Academy of St. Christopher Orchestra
+
+Some notes on Bach's Toccata and Fugue in D minor:
+- My family and I often call it TAF
+- It's one of my favorite pieces by Bach
+- I really love this piece, and I feel a lot when I listen to it... it's very powerful
+- Bach is known for his work in counterpoint
+- What is counterpoint? I think it's when two (or more) melodies are playing at the same time
+- The second, third, fourth, etc melodies are the counterpoint to the first
+- The Toccata and Fugue in D minor is a good example of counterpoint
