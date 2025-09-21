@@ -79,3 +79,9 @@ Some notes on Bach's Toccata and Fugue in D minor:
 - What is counterpoint? I think it's when two (or more) melodies are playing at the same time
 - The second, third, fourth, etc melodies are the counterpoint to the first
 - The Toccata and Fugue in D minor is a good example of counterpoint
+
+The Cranberries | Zombie (Cover)  
+https://www.youtube.com/watch?v=HTzCc57fduc
+
+Snow Patrol | Run (Cover)  
+https://www.youtube.com/watch?v=msW_4gY2fXM
