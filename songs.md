@@ -88,3 +88,6 @@ https://www.youtube.com/watch?v=msW_4gY2fXM
 
 Leona Lewis | Run (Cover)  
 https://www.youtube.com/watch?v=F6-7GT4KF6I
+
+Chord Overstreet | Hold On  
+https://www.youtube.com/watch?v=w_j2j3fxYwA
