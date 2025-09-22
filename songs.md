@@ -103,3 +103,15 @@ https://www.youtube.com/watch?v=XB2xjDSyVXs
 
 Jesus Image | Yeshua (Slowed & Reverb)  
 https://www.youtube.com/watch?v=ARqYuVyl4KI
+
+Hillsong United | Oceans  
+https://www.youtube.com/watch?v=dy9nwe9_xzw
+
+Hillsong United | Oceans (Slowed & Reverb)  
+https://www.youtube.com/watch?v=HyEi1qtKcc8
+
+Steve Jablonsky | Tessa (Slowed & Pitched)  
+https://www.youtube.com/watch?v=A5yzZd6qhD8
+
+Steve Jablonsky | Tessa (Slowed & Reverb)  
+https://www.youtube.com/watch?v=LD2zThYB8kc
