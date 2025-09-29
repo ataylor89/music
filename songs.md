@@ -115,3 +115,9 @@ https://www.youtube.com/watch?v=A5yzZd6qhD8
 
 Steve Jablonsky | Tessa (Slowed & Reverb)  
 https://www.youtube.com/watch?v=LD2zThYB8kc
+
+Ludovico Einaudi | Nuvole Bianche  
+https://www.youtube.com/watch?v=sR2W2scFS4Y
+
+Ludovico Einaudi | Waterways  
+https://www.youtube.com/watch?v=naAC2_CMOzQ
