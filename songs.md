@@ -130,3 +130,9 @@ https://www.youtube.com/watch?v=7wfYIMyS_dI
 
 Message to Bears | You are a memory  
 https://www.youtube.com/watch?v=vIC9zC06K-s
+
+Leeland | Waymaker  
+https://www.youtube.com/watch?v=VtwEV_uzanE
+
+Hillsong Worship | I surrender (Slowed & Reverb)  
+https://www.youtube.com/watch?v=dw-EKsUypOk
