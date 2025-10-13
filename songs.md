@@ -139,3 +139,12 @@ https://www.youtube.com/watch?v=dw-EKsUypOk
 
 Enya | May it be (The Bands of HM Royal Marines)  
 https://www.youtube.com/watch?v=BuZjgIiaMTw
+
+Hillsong United | Oceans (Slowed Down/Pitched Up)  
+https://www.youtube.com/watch?v=qmEv13W-mV8
+
+Hillsong Worship | Broken Vessels (Amazing Grace)  
+https://www.youtube.com/watch?v=fiyYoe678yI
+
+Hillsong Worship | So Will I (100 Billion X)  
+https://www.youtube.com/watch?v=GfVd5x9W1Xc
