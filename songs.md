@@ -148,3 +148,6 @@ https://www.youtube.com/watch?v=fiyYoe678yI
 
 Hillsong Worship | So Will I (100 Billion X)  
 https://www.youtube.com/watch?v=GfVd5x9W1Xc
+
+Sigur Ros | Vidrar vel til loftarasa ("Good weather for airstrikes")  
+https://www.youtube.com/watch?v=bzRpfgUo_w0
