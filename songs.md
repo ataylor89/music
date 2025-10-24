@@ -151,3 +151,9 @@ https://www.youtube.com/watch?v=GfVd5x9W1Xc
 
 Sigur Ros | Vidrar vel til loftarasa ("Good weather for airstrikes")  
 https://www.youtube.com/watch?v=bzRpfgUo_w0
+
+Steve Jablonsky | We have to go  
+https://www.youtube.com/watch?v=c3AsUc5Zclw
+
+Explosions in the sky | First breath after coma  
+https://www.youtube.com/watch?v=aznXne3juPk
