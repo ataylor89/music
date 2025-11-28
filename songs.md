@@ -160,3 +160,9 @@ https://www.youtube.com/watch?v=aznXne3juPk
 
 Elevation Worship | Here as in heaven  
 https://www.youtube.com/watch?v=c1txho7Mv8c
+
+Steve Jablonsky | Tessa (extended version)  
+https://www.youtube.com/watch?v=_tuLd3h19Fw
+
+Steve Jablonsky | Tessa (slowed)  
+https://www.youtube.com/watch?v=B78riSX5Ank
