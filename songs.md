@@ -80,6 +80,9 @@ Some notes on Bach's Toccata and Fugue in D minor:
 - The second, third, fourth, etc melodies are the counterpoint to the first
 - The Toccata and Fugue in D minor is a good example of counterpoint
 
+The Cranberries | Zombie  
+https://www.youtube.com/watch?v=6Ejga4kJUts
+
 The Cranberries | Zombie (Cover)  
 https://www.youtube.com/watch?v=HTzCc57fduc
 
