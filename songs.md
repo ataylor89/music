@@ -32,6 +32,9 @@ https://www.youtube.com/watch?v=c36PUlqpOdY
 Steve Jablonsky | Tessa | Scenes from Star Wars  
 https://www.youtube.com/watch?v=p6OOmLShA2Q
 
+Scenes from Star Wars set to music  
+https://www.youtube.com/watch?v=UTIWvYLEfH4
+
 Anakin & Ahsoka Tribute | I won't leave you  
 https://www.youtube.com/watch?v=XHdqkqZ9ksY
 
