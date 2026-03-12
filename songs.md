@@ -191,3 +191,9 @@ I wanted to share this anecdote, along with the song.
 
 Max Richter | Spring 1  
 https://www.youtube.com/watch?v=6T0MFCX9SLI
+
+Bach | Passacaglia and Fugue in C minor  
+https://www.youtube.com/watch?v=zzBXZ__LN_M
+
+Bach | Art of Fugue  
+https://www.youtube.com/watch?v=N6sUlZa-IrU
