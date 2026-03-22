@@ -161,6 +161,9 @@ https://www.youtube.com/watch?v=GfVd5x9W1Xc
 Sigur Ros | Vidrar vel til loftarasa ("Good weather for airstrikes")  
 https://www.youtube.com/watch?v=bzRpfgUo_w0
 
+Sigur Ros | Vidrar vel til loftarasa  
+https://www.youtube.com/watch?v=_XKdJj2WmoA
+
 Steve Jablonsky | We have to go  
 https://www.youtube.com/watch?v=c3AsUc5Zclw
 
