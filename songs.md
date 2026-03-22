@@ -247,3 +247,16 @@ You can see that Madonna's music and art often make references to Christianity. 
 Who, in particular, taught me about the importance of loving everyone?
 
 It was Jesus who taught me this lesson. He is also called Yeshua. I learned this lesson from Jesus. I learned this lesson from Yeshua.
+
+Colbie Caillat | Try  
+https://www.youtube.com/watch?v=EhsNW-RFQao
+
+Colbie Caillat is one of my favorite musicians. I have been listening to Colbie Caillat and Madonna a lot lately.
+
+I love the lyrics to "Try". You don't have to change a thing - you're perfect the way you are. This message is really touching.
+
+You don't have to try... you don't have to change a single thing. You just have to get up, get up, get up, get up.
+
+You don't have to change a single thing.
+
+This message really resonates with me. I imagine telling it to my eighteen year old self.
