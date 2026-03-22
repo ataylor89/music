@@ -248,7 +248,7 @@ Who, in particular, taught me about the importance of loving everyone?
 
 It was Jesus who taught me this lesson. He is also called Yeshua. I learned this lesson from Jesus. I learned this lesson from Yeshua.
 
-Colbie Caillat | Try  
+Colbie Caillat | Try (feat. Hillary Scott)  
 https://www.youtube.com/watch?v=EhsNW-RFQao
 
 Colbie Caillat is one of my favorite musicians. I have been listening to Colbie Caillat and Madonna a lot lately.
