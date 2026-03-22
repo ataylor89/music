@@ -209,3 +209,41 @@ https://www.youtube.com/watch?v=rZYasvYQvEU
 
 Sigur Ros | Glosoli (cover)  
 https://www.youtube.com/watch?v=fV9wijWuiiQ
+
+Madonna | Like a Prayer | Hallelujah  
+https://www.youtube.com/watch?v=jVgE45ZYTfw
+
+I love this performance of Like a Prayer and Hallelujah. Like a Prayer is a song that Madonna wrote. She has performed it on many occasions.
+
+Madonna is one of my favorite musicians. I listen to her music often.
+
+I love the opening lines of Like a Prayer:
+
+"Life is a mystery
+Everyone must stand alone
+I hear you call my name
+And it feels like home"
+
+Madonna is an inspiration. I feel the power of her voice, her expression, every time I listen to her, every time I watch her perform.
+
+I was singing the opening lines of Like a Prayer in my home this morning. The lyrics are really powerful.
+
+The lyric "Everyone must stand alone" is a powerful line, because it often feels that way.
+
+But just know that someone out there loves you - there are people who care about everyone, there are people who love everyone.
+
+I like to say, "The calling of law enforcement is to love everyone." There are saints out there, angels out there, who love everyone.
+
+I am one of those people. I love everyone, I care about everyone. I learned this ethic from reading the Bible.
+
+There are many people like me. There are many saints out there, there are many angels out there, who love everyone.
+
+I'm actually a Christian, a devout Christian. My Christian faith, and my reading of the Bible, taught me about the importance of loving everyone.
+
+I learned this lesson from reading the Bible, and this is one reason I'm a Christian.
+
+You can see that Madonna's music and art often make references to Christianity. I really enjoy seeing references to Christianity in her work.
+
+Who, in particular, taught me about the importance of loving everyone?
+
+It was Jesus who taught me this lesson. He is also called Yeshua. I learned this lesson from Jesus. I learned this lesson from Yeshua.
