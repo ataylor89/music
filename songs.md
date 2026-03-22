@@ -197,3 +197,12 @@ https://www.youtube.com/watch?v=zzBXZ__LN_M
 
 Bach | Art of Fugue  
 https://www.youtube.com/watch?v=N6sUlZa-IrU
+
+Sigur Ros | Glosoli  
+https://www.youtube.com/watch?v=JOQxq6lnBwI
+
+Sigur Ros | Glosoli (cover)  
+https://www.youtube.com/watch?v=rZYasvYQvEU
+
+Sigur Ros | Glosoli (cover)  
+https://www.youtube.com/watch?v=fV9wijWuiiQ
