@@ -219,9 +219,9 @@ Madonna is one of my favorite musicians. I listen to her music often.
 
 I love the opening lines of Like a Prayer:
 
-"Life is a mystery
-Everyone must stand alone
-I hear you call my name
+"Life is a mystery  
+Everyone must stand alone  
+I hear you call my name  
 And it feels like home"
 
 Madonna is an inspiration. I feel the power of her voice, her expression, every time I listen to her, every time I watch her perform.
