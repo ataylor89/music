@@ -269,3 +269,6 @@ This message really resonates with me. I imagine telling it to my eighteen year 
 
 Mary J. Blige and U2 | One  
 https://www.youtube.com/watch?v=ZpDQJnI4OhU
+
+U2 | One | Live Symphony Orchestra & Choir  
+https://www.youtube.com/watch?v=pMPXzAcIKkI
