@@ -275,3 +275,6 @@ https://www.youtube.com/watch?v=ZpDQJnI4OhU
 
 U2 | One | Live Symphony Orchestra & Choir  
 https://www.youtube.com/watch?v=pMPXzAcIKkI
+
+Goo Goo Dolls | Iris | Lyric video  
+https://www.youtube.com/watch?v=zDOILKOOUCo
