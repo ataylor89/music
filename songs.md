@@ -278,3 +278,6 @@ https://www.youtube.com/watch?v=pMPXzAcIKkI
 
 Goo Goo Dolls | Iris | Lyric video  
 https://www.youtube.com/watch?v=zDOILKOOUCo
+
+Goo Goo Dolls | Slide  
+https://www.youtube.com/watch?v=4AT9WJr2wVM
