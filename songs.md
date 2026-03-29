@@ -284,3 +284,6 @@ https://www.youtube.com/watch?v=zDOILKOOUCo
 
 Goo Goo Dolls | Slide  
 https://www.youtube.com/watch?v=4AT9WJr2wVM
+
+Goo Goo Dolls | Black Balloon  
+https://www.youtube.com/watch?v=7AIQ0mTgQR4
