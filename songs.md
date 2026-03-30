@@ -293,3 +293,6 @@ https://www.youtube.com/watch?v=WfunypXsBO4
 
 Remy Zero | Save Me  
 https://www.youtube.com/watch?v=Qu0dIn3_2Zc
+
+Lauren Daigle | Rescue  
+https://www.youtube.com/watch?v=gYR0xP1j4PY
