@@ -305,3 +305,6 @@ https://www.youtube.com/watch?v=gYR0xP1j4PY
 
 Lauren Daigle | Rescue | Lyric Video  
 https://www.youtube.com/watch?v=9PugD11k3JU
+
+Lauren Daigle | Light Of The World | Lyric Video  
+https://www.youtube.com/watch?v=_cLhaZIBSpo
