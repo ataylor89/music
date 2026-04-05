@@ -273,6 +273,9 @@ This message really resonates with me. I imagine telling it to my eighteen year 
 Madonna | Don't Tell Me  
 https://www.youtube.com/watch?v=gLFWRDsx5AI
 
+Madonna | Ray of Light  
+https://www.youtube.com/watch?v=x3ov9USxVxY
+
 Mary J. Blige and U2 | One  
 https://www.youtube.com/watch?v=ZpDQJnI4OhU
 
