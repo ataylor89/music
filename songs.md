@@ -308,3 +308,9 @@ https://www.youtube.com/watch?v=9PugD11k3JU
 
 Lauren Daigle | Light Of The World | Lyric Video  
 https://www.youtube.com/watch?v=_cLhaZIBSpo
+
+Lauren Daigle | You Say | Piano/Vocal Version  
+https://www.youtube.com/watch?v=2hYTXmjf6GI
+
+Lauren Daigle | You Say | Acoustic Version   
+https://www.youtube.com/watch?v=XW-yeIcmJ8A
