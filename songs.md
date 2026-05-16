@@ -334,7 +334,7 @@ Michael Jackson | Thriller
 https://www.youtube.com/watch?v=sOnqjkJTMaA
 
 Michael Jackson | You Are Not Alone  
-https://www.youtube.com/watch?v=pAyKJAtDNCw
+https://www.youtube.com/watch?v=FZMPtvJe0fg
 
 Imogen Heap | Hide and Seek  
 https://www.youtube.com/watch?v=UYIAfiVGluk
