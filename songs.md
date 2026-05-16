@@ -335,3 +335,6 @@ https://www.youtube.com/watch?v=01rlMy9Gv0A
 
 Katherine Cordova | Gladiator - Epic Piano Suite  
 https://www.youtube.com/watch?v=_PgCJCEwVz4
+
+Katherine Cordova | Time - Hans Zimmer  
+https://www.youtube.com/watch?v=wfW9Qn-191s
