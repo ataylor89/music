@@ -341,3 +341,6 @@ https://www.youtube.com/watch?v=wfW9Qn-191s
 
 Katherine Cordova | Interstellar Epic Piano Suite - Hans Zimmer  
 https://www.youtube.com/watch?v=d_u5tQeCu5Y
+
+Katherine Cordova | Nuvole Bianche - Ludovico Einaudi  
+https://www.youtube.com/watch?v=ceOL1qkanwA
