@@ -330,6 +330,9 @@ https://www.youtube.com/watch?v=BWf-eARnf6U
 Michael Jackson | Billie Jean  
 https://www.youtube.com/watch?v=Zi_XLOBDo_Y
 
+Michael Jackson | Thriller  
+https://www.youtube.com/watch?v=sOnqjkJTMaA
+
 Imogen Heap | Hide and Seek  
 https://www.youtube.com/watch?v=UYIAfiVGluk
 
