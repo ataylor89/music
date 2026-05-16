@@ -327,6 +327,9 @@ https://www.youtube.com/watch?v=PivWY9wn5ps
 Michael Jackson | Heal The World  
 https://www.youtube.com/watch?v=BWf-eARnf6U
 
+Michael Jackson | Billie Jean  
+https://www.youtube.com/watch?v=Zi_XLOBDo_Y
+
 Imogen Heap | Hide and Seek  
 https://www.youtube.com/watch?v=UYIAfiVGluk
 
