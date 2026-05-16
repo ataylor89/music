@@ -347,3 +347,6 @@ https://www.youtube.com/watch?v=ceOL1qkanwA
 
 Katherine Cordova | Hide and Seek - Imogen Heap  
 https://www.youtube.com/watch?v=XC_IiJAYzC4
+
+Emilie Charette | Tu Traces Un Chemin (Way Maker)  
+https://www.youtube.com/watch?v=-JB5z7_73Bg
