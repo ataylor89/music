@@ -344,3 +344,6 @@ https://www.youtube.com/watch?v=d_u5tQeCu5Y
 
 Katherine Cordova | Nuvole Bianche - Ludovico Einaudi  
 https://www.youtube.com/watch?v=ceOL1qkanwA
+
+Katherine Cordova | Hide and Seek - Imogen Heap  
+https://www.youtube.com/watch?v=XC_IiJAYzC4
