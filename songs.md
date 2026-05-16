@@ -337,6 +337,9 @@ Michael Jackson | You Are Not Alone
 https://www.youtube.com/watch?v=Tk8MkQClqr0  
 https://www.youtube.com/watch?v=FZMPtvJe0fg
 
+Michael Jackson | Beat It  
+https://www.youtube.com/watch?v=oRdxUFDoQe0
+
 The Jackson 5 | I Want You Back  
 https://www.youtube.com/watch?v=y2bVIBwpCTA
 
