@@ -352,6 +352,9 @@ https://www.youtube.com/watch?v=N9U9A4_cgyI
 The Jackson 5 | Medley: Stand! Who's Loving You and I Want You Back  
 https://www.youtube.com/watch?v=-4QWtflqqoU
 
+The Jackson 5 | I'll Be There  
+https://www.youtube.com/watch?v=VRdG9vEJOKY
+
 Imogen Heap | Hide and Seek  
 https://www.youtube.com/watch?v=UYIAfiVGluk
 
