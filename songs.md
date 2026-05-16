@@ -321,5 +321,8 @@ https://www.youtube.com/watch?v=Br1q_i1RHPU
 Lauren Daigle | Love Like This | Lyrics  
 https://www.youtube.com/watch?v=U7eyU9EPGWo
 
+Michael Jackson | Man In The Mirror  
+https://www.youtube.com/watch?v=PivWY9wn5ps
+
 Imogen Heap | Hide and Seek  
 https://www.youtube.com/watch?v=UYIAfiVGluk
