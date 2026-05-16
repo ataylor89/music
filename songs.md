@@ -350,3 +350,6 @@ https://www.youtube.com/watch?v=XC_IiJAYzC4
 
 Emilie Charette | Tu Traces Un Chemin (Way Maker)  
 https://www.youtube.com/watch?v=-JB5z7_73Bg
+
+Emilie Charette | Yeshua Mon Bien-Aimé  
+https://www.youtube.com/watch?v=4WsfREVsLY8
