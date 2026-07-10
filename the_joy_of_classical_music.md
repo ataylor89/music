@@ -50,7 +50,7 @@ Music vocabulary:
 
     Harmony: A musical technique in which two or more notes are played simultaneously.
 
-    Counterpoint: (1) A musical technique in which two or more melodies are played simultaneously. (2) Interwoven melodies in a musical composition (source: Scripps National Spelling Bee)
+    Counterpoint: (1) A musical technique in which two or more melodies are played simultaneously (2) Interwoven melodies in a musical composition (source: Scripps National Spelling Bee)
 
 It also helps to have some examples.
 
