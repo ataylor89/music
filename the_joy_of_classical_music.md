@@ -113,10 +113,13 @@ https://www.youtube.com/watch?v=zzBXZ__LN_M
 Bach's Toccata and Fugue in D minor  
 https://www.youtube.com/watch?v=Pi0IuyTS_ic
 
+Bach's Art of Fugue, Counterpoint 1  
 https://www.youtube.com/watch?v=3A8iR7cGHHQ
 
+Bach's Art of Fugue  
 https://www.youtube.com/watch?v=N6sUlZa-IrU
 
+Bach's Well Tempered Clavier, Book 1, Prelude and Fugue No. 1 in C major  
 https://www.youtube.com/watch?v=61QNh28FxLE
 
 https://www.youtube.com/watch?v=76oidwtHyIo
