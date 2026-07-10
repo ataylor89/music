@@ -122,10 +122,13 @@ https://www.youtube.com/watch?v=N6sUlZa-IrU
 Bach's Well Tempered Clavier, Book 1, Prelude and Fugue No. 1 in C major  
 https://www.youtube.com/watch?v=61QNh28FxLE
 
+Bach's 6th Brandenburg concerto  
 https://www.youtube.com/watch?v=76oidwtHyIo
 
+Pachelbel's Canon in D major  
 https://www.youtube.com/watch?v=Pppexz-KKig
 
+Pachelbel's Canon in D major ("Voces para la Paz")  
 https://www.youtube.com/watch?v=-WkEwc9sa8Q
 
 https://www.youtube.com/watch?v=b4IXXpTHjok
