@@ -42,8 +42,8 @@ These are good questions. Let's answer these questions with a vocabulary sheet.
 
 Music vocabulary:
 
-1. Theme: (1) A musical idea that develops or repeats throughout a piece (2) A melody that repeats throughout a piece
-2. Motif: I think that a motif is just a theme. In my opinion, the two words are synonymous and interchangeable, although they might have slightly different connotations.
+1. Theme: A melody that repeats throughout a piece.
+2. Motif: I think that a motif is just a theme. In my opinion, the two words are synonyms.
 3. Melody: A sequence of notes; a sequence of notes that creates a musical tune.
 4. Harmony: A musical technique in which two or more notes are played simultaneously.
 5. Counterpoint: (1) A musical technique in which two or more melodies are played simultaneously (2) Interwoven melodies in a musical composition (source: Scripps National Spelling Bee)
