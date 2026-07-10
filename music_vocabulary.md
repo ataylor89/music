@@ -17,4 +17,4 @@ In the table below, I'll define some important terms from music theory
 | Harmony | A musical technique in which two or more notes are played simultaneously |
 | Melody | A sequence of notes; a sequence of notes that creates a musical tune |
 | Motif | I think that a motif is just a theme. In my opinion, the two words are synonymous and interchangeable, although they might have slightly different connotations. |
-| Theme | A musical idea that develops or repeats throughout a piece |
+| Theme | (1) A musical idea that develops or repeats throughout a piece (2) A melody that repeats throughout a piece |
