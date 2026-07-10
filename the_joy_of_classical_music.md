@@ -152,26 +152,38 @@ https://www.youtube.com/watch?v=bnK3kh8ZEgA
 Mozart's 20th piano concerto  
 https://www.youtube.com/watch?v=OtyYI2qNXRI
 
+Mozart's 11th piano sonata ("Alla Turca")  
 https://www.youtube.com/watch?v=x7Pd2OqxfnU
 
+Mozart's 16th piano sonata  
 https://www.youtube.com/watch?v=1vDxlnJVvW8
 
+Mozart's 16th piano sonata  
 https://www.youtube.com/watch?v=HmkVBf01XhQ
 
+Mozart's Eine Kleine Nachtmusik (a little night music)  
 https://www.youtube.com/watch?v=r_oK8dKIBYc
 
+Mozart's Le Nozze di Figaro (the marriage of Figaro) overture  
 https://www.youtube.com/watch?v=pb1tlh9xn38
 
+Mozart's Queen of the Night aria  
 https://www.youtube.com/watch?v=D1-CbocY21E
 
+Mozart's Don Giovanni Commendatore scene  
 https://www.youtube.com/watch?v=Ioc9shJa_lI
 
+Mozart's Catalogue aria  
 https://www.youtube.com/watch?v=INF9r5jju0A
 
+Schubert's Ave Maria  
 https://www.youtube.com/watch?v=sWe95K5BEoM
 
+Tchaikovsky's Dance of the Sugar Plum Fairy  
 https://www.youtube.com/watch?v=gFjveJ5sgeQ
 
+Tchaikovsky's Waltz of the Flowers  
 https://www.youtube.com/watch?v=Zp1aDnVySf8
 
+Tchaikovsky's 6th symphony  
 https://www.youtube.com/watch?v=IH-zp9LjiEs
