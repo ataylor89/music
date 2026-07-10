@@ -140,12 +140,16 @@ https://www.youtube.com/watch?v=rNeirjA65Dk
 Mozart's 38th symphony (the "Prague" symphony)  
 https://www.youtube.com/watch?v=ot3g41rHFqU
 
+Mozart's 39th symphony  
 https://www.youtube.com/watch?v=H0x_dCrKd4w
 
+Mozart's 40th symphony  
 https://www.youtube.com/watch?v=JTc1mDieQI8
 
+Mozart's 41st symphony (the "Jupiter" symphony)  
 https://www.youtube.com/watch?v=bnK3kh8ZEgA
 
+Mozart's 20th piano concerto  
 https://www.youtube.com/watch?v=OtyYI2qNXRI
 
 https://www.youtube.com/watch?v=x7Pd2OqxfnU
