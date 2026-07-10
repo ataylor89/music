@@ -92,8 +92,10 @@ https://www.youtube.com/watch?v=aW-7CqxhnAQ
 Beethoven's 7th symphony  
 https://www.youtube.com/watch?v=ahvrHrPGi1k
 
+Beethoven's 9th symphony  
 https://www.youtube.com/watch?v=TL3kHgZmVBQ
 
+Beethoven's 14th piano sonata ("Moonlight sonata")  
 https://www.youtube.com/watch?v=q5OaSju0qNc
 
 https://www.youtube.com/watch?v=0Ak_7tTxZrk
@@ -110,7 +112,7 @@ https://www.youtube.com/watch?v=3A8iR7cGHHQ
 
 https://www.youtube.com/watch?v=N6sUlZa-IrU
 
-https://www.youtube.com/watch?v=61QNh28FxLE&list=PLXv83HwbY-_rtC9E0w9g-uOFzjfNNgGAV
+https://www.youtube.com/watch?v=61QNh28FxLE
 
 https://www.youtube.com/watch?v=76oidwtHyIo
 
