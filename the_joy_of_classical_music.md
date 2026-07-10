@@ -131,10 +131,13 @@ https://www.youtube.com/watch?v=Pppexz-KKig
 Pachelbel's Canon in D major ("Voces para la Paz")  
 https://www.youtube.com/watch?v=-WkEwc9sa8Q
 
+Mozart's 1st symphony  
 https://www.youtube.com/watch?v=b4IXXpTHjok
 
+Mozart's 25th symphony  
 https://www.youtube.com/watch?v=rNeirjA65Dk
 
+Mozart's 38th symphony (the "Prague" symphony)  
 https://www.youtube.com/watch?v=ot3g41rHFqU
 
 https://www.youtube.com/watch?v=H0x_dCrKd4w
