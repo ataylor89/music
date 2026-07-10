@@ -80,12 +80,16 @@ I paid close attention to the themes in each piece.
 
 I would like to share some of my favorite pieces from the classical and baroque periods. I have included performances of these works below.
 
+Beethoven's 3rd symphony ("Eroica")  
 https://www.youtube.com/watch?v=6Zd8mIcOCrI
 
+Beethoven's 5th symphony  
 https://www.youtube.com/watch?v=zWP9fkCuqi8
 
+Beethoven's 6th symphony ("Pastoral")  
 https://www.youtube.com/watch?v=aW-7CqxhnAQ
 
+Beethoven's 7th symphony  
 https://www.youtube.com/watch?v=ahvrHrPGi1k
 
 https://www.youtube.com/watch?v=TL3kHgZmVBQ
